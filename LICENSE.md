@@ -1,4 +1,4 @@
-# 
+# ftx trading bot premium Strategy | risk-management & scalping offers the most advanced ftx trading bot, with risk-management and scalping. Ideal for professional traders and
 
 
 
